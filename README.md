@@ -1,6 +1,6 @@
 ### About Me
 
-✨ Hai, I'm Lena and I work as a platforms engineer ✨
+✨ Hai, I'm Elena and I work as a platforms engineer ✨
 
 - [Pronouns](https://www.stonewall.org.uk/about-us/news/international-pronouns-day) :: she/her and they/them.
 - What I love :: learning and sharing things I learn about.
